@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ikhwan @1NDecent
+- 👋 This is 1NDY
 - 📫 You friends can find me at Telegram.
 
 <!---
